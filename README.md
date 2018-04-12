@@ -1,0 +1,1 @@
+My name is Fred, a life long learner, i am passionate about tech and being an African world class technologist, my values are self improvement, accountability and a team player.
